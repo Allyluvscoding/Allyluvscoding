@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Allyluvscoding
+- 👀 I’m interested in learning game programming
+- 🌱 I’m currently learning python
+- 💞️ very very beginner :)
+- 📫 How to reach me : discord Allyy#1507
